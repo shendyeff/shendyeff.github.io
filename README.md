@@ -1,1 +1,0 @@
-# shendyeff.github.io
